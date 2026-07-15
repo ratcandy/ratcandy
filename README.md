@@ -14,7 +14,6 @@ i dont use dnis but i will block / hide you if you're annoying. i don't interact
   <img src="https://64.media.tumblr.com/af589ffa66cf428d230a8e11ce16aa24/570ff7d3ad1e3528-cc/s100x200/3b34b1321caecbbb0faf7ca1b6e8ed36e39c1dc3.pnj"   width="99" height="56">
   <img src="https://64.media.tumblr.com/30cffdfb8e3a570ad228185279ebea7a/3d53337e2c63c8a2-93/s100x200/cfd5c7a55cf1fd5849b2fc6f16fee5c6cd321f50.pnj"   width="99" height="56">
   <img src="https://64.media.tumblr.com/a8aff21acd4026b83011426ec9466277/b19cce71d4645222-ed/s100x200/3f6ade520097c77f010c292efb55d0597d47fd39.pnj"   width="99" height="56">
-  <img src="https://64.media.tumblr.com/db76be2d5f38a4fa9be74699cc87d47d/b19cce71d4645222-7c/s250x400/5aad5b4abfd73bf990d84b2bec6f36f0214c2dae.jpg"   width="99" height="56">
   <img src="https://64.media.tumblr.com/feb502c0f81ca2a407aacbf405f1630d/d83a7de606c7f5f9-8a/s100x200/38c4a68fda455958540b0ccb43b5eba9a1716ff2.pnj"   width="99" height="56">
   <hr>
 </p>
