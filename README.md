@@ -15,4 +15,4 @@ i dont use dnis but i will block / hide you if you're annoying. i don't interact
   <hr>
 </p>
 stay plur, i love you random internet stranger. 
- <img src="https://64.media.tumblr.com/9e9d3b478728ebd1495b06f1d093aecd/591b5dad5df6807a-7c/s250x400/c22db6757b919059d0e04aa267cb9480c7962d3a.gif"   width="99" height="56">
+ <img src="https://64.media.tumblr.com/9e9d3b478728ebd1495b06f1d093aecd/591b5dad5df6807a-7c/s250x400/c22db6757b919059d0e04aa267cb9480c7962d3a.gif">
