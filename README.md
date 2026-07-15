@@ -3,7 +3,7 @@
 hi, i'm sam/aster/skully. i'm pretty chill but im offtab a lot<br> 18 years old. i will not friend people under 17. <br> i'm currenty <a href="https://www.imood.com/users/ratcandy"><img src="https://moods.imood.com/display/uname-ratcandy/fg-e8e7d7/bg-5c8228/imood.gif" alt="The current mood of ratcandy at www.imood.com" border="0"></a>
 <hr>
 <h1>byi</h1>
-i dont use dnis but i will block / hide you if you're annoying. i don't interact with the proship/darkship/comship whatever crowd the hell you people call yourselves for comfort reasons. <br> i'm disorder centeral and I'm not giving out specifics, because that's not a very smart idea. but i have memory issues so i might forget who you are, sorry if thats the case! just tell me how we met or remind me who you are. <hr>
+i dont use dnis but i will block / hide you if you're annoying. i don't interact with the proship/darkship/comship whatever the hell you people call yourselves crowd for comfort reasons. <br> i'm disorder centeral and I'm not giving out specifics, because that's not a very smart idea. but i have memory issues so i might forget who you are, sorry if thats the case! just tell me how we met or remind me who you are. <hr>
 <h2>stamps </h2>
 <p float="left">
   <img src="https://64.media.tumblr.com/c8c7c5b7caee57972cbc4e30736a516a/ec82ae4c94dba906-f1/s100x200/cc3861b51ca484aa9e2678aeafb3ab3a74c81c9e.gif"   width="99" height="56">
@@ -15,3 +15,4 @@ i dont use dnis but i will block / hide you if you're annoying. i don't interact
   <hr>
 </p>
 stay plur, i love you random internet stranger. 
+ <img src="https://64.media.tumblr.com/9e9d3b478728ebd1495b06f1d093aecd/591b5dad5df6807a-7c/s250x400/c22db6757b919059d0e04aa267cb9480c7962d3a.gif"   width="99" height="56">
